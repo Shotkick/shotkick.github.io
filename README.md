@@ -1,1 +1,0 @@
-# shotkick.github.io
